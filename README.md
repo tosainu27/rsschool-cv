@@ -1,1 +1,1 @@
-https://tosainu27.github.io/rsschool-cv/cv  
+https://tosainu27.github.io/rsschool-cv
