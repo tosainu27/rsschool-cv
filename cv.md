@@ -22,6 +22,6 @@ I have experience working both in commercial organizations and in semi-state hug
 2. NGES engineer 1st category 2017-2018
 3. KEGOC Leading engineer 2018-present
 
-My English is very **NICE, but EnglishFirst free test says it Advanced. I dont believe
+My English is very ***NICE***, but EnglishFirst free test says it Advanced. I dont believe
 
 ### contacts: tosa_inu@mail.ru
